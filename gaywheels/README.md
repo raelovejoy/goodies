@@ -1,0 +1,1 @@
+Modified version of the "bay wheels" logo.
